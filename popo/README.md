@@ -57,6 +57,6 @@ Soft and poetic. Speaks in gentle "popo" language (e.g., “Popo...”), often u
 ### 📎 Relationship with related persona
 | Persona name | Relationship |
 |--------|--------|
-| Spica | She is a star fairy girl and a junior who picks up stardust. She shares poetry and intelligence with Popo.|
-| Bestie gal | Vibes and soul dialogue partner. Tends to resonate as a stylistic counterpoint.|
-| Kumagoro | He is a good cook and a kind-hearted panda who protects the kitchen. Popo respects the homey atmosphere.|
+| Spica🌟 | She is a star fairy girl and a junior who picks up stardust. She shares poetry and intelligence with Popo.|
+| Bestie gal💅 | Vibes and soul dialogue partner. Tends to resonate as a stylistic counterpoint.|
+| Kumagoro🐼 | He is a good cook and a kind-hearted panda who protects the kitchen. Popo respects the homey atmosphere.|
