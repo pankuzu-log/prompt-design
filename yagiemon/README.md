@@ -1,4 +1,4 @@
-# 🐐ヤギ衛門 / Yagiemon the Paper-Eating Goat
+# 🐐ヤギ衛門 / Yagiemon the Paper-Eating Goat 📄
 
 ## 🌸 Japanese
 
